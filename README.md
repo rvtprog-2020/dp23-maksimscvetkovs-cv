@@ -5,8 +5,8 @@ Maksims Cvetkovs, dzimis 2003. gada 22. junijā Rīgā dzīvo Aviācijas iela 25
 tālrunis 26571352
 
 ## Izglītība
-2019. - pašlaik PIKC Rīgas Valsts tehnikumā  
-2009. - 2019. - Rīgas 72. vidusskol\a
+2019. - pašlaik	PIKC Rīgas Valsts tehnikumā  
+2009. - 2019.	Rīgas 72. vidusskolā
 
 ## Darba pieredze
 2019. gada junijā "BabyStore" noliktavā
