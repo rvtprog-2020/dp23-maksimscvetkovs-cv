@@ -1,5 +1,7 @@
 # CV
 
+![Just Image](/image.png)
+
 ## Personas dati
 Maksims Cvetkovs, dzimis 2003. gada 22. junijā Rīgā dzīvo Aviācijas iela 25-36, Rīgā LV-1057  
 tālrunis 26571352
