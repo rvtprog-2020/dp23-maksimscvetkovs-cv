@@ -16,8 +16,8 @@ tālrunis 26571352
 2018. - 2019. angļu valodu kursi
 
 ## Valodas presmes
-krievu valoda - dzimtā  
-latviešu un angļu valoda - runāju, rakstu ar grūtībam
+krievu valoda -- dzimtā  
+latviešu un angļu valoda -- runāju, rakstu ar grūtībam
 
 ## Intereses
 Programmešana, robottehnika
